@@ -1,1 +1,1 @@
-https://github.com/Oshire/Dark_UI_Epoch/blob/043494d35c85c2da57e2ce712a95d7845b107d8b/example.png
+https://cdn.discordapp.com/attachments/1467934917957648617/1498668348924498101/76276E8B-A907-4FCD-8331-C3D69EC0B7B9.png?ex=69f3f96a&is=69f2a7ea&hm=c7d3d01413c07560626d498d8eb942ea43851344132bebf4a3c6d226b6f9163d&
